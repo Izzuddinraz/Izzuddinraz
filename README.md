@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Izzuddinraz
 - 👀 I’m interested in Motorsport
-- 🌱 I’m currently working as Data Analyst
+- 🌱 I’m currently working as Research Executive
 - 📫 How to reach me : izzuddinraz@gmail.com
 
 <!---
